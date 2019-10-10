@@ -1,1 +1,1 @@
-# self-studying
+# Планы
